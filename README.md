@@ -8,6 +8,8 @@ E-mail: nadjaepereira@gmail.com
 [99 freelas](www.99freelas.com.br)</br> 
 [Trampos](www.trampos.co)</br>
 [Open Talent](www.opentalent.com.br)</br>
+[TREX JOBS](https://www.trexjobs.com.br/)</br>
+
 
 Internacional </br> 
 A fonte dessa lista é do canal do youtube dos meus amigos Tainá + Marcelo, [ela da dicas ótimas no canal deles]( 
@@ -16,7 +18,8 @@ https://www.youtube.com/watch?v=Tlr4tHvXclk&ab_channel=Tain%C3%A1eMarcelo).</br>
 Tradicionais </br> 
 [Indeed](www.indeed.com) </br> 
 [LinkedIn](www.linkedin.com) </br>
-[Monster](www.monster.com)
+[Monster](www.monster.com)</br>
+[ziprecriter](https://www.ziprecruiter.com/jobseeker/home) </br>
 
 Novatas </br> 
 [Upwork](www.upwork.com) </br> 
@@ -25,6 +28,9 @@ Novatas </br>
 [Workana](www.workana.com) </br> 
 [Remote](www.remote.co) </br> 
 [Guru](www.guru.com) </br> 
+[everyjobforme](https://www.everyjobforme.com/)</br>
+[Get it](www.get.it)</br>
+
 
 [We work remotely](www.weworkremotely.com)</br> 
 [Outsourcely](www.outsourcely.com)</br> 
